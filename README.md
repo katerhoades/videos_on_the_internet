@@ -1,8 +1,5 @@
-# 🎥VIDEO📼📺ON💾📹THE📼📷INTERNET💻
-#### .・゜:✧･ﾟ: *✧･ﾟ:* SJSU Art 75 | Fall 2018 *:･ﾟ✧*:･ﾟ✧
-</br>
+# 🎥VIDEOS📼📺ON💾📹THE📼📷INTERNET💻
 
-## ▼△▼△▼△▼ Video Art & the Internet
 
 **Related:** <br>
 [Net Art Anthology](https://anthology.rhizome.org/)<br>
