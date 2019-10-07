@@ -9,6 +9,7 @@
 [Art in the Age of the Internet exhibition](https://www.icaboston.org/exhibitions/art-age-internet-1989-today) <br>
 [I Was Raised on the Internet exhibition](https://mcachicago.org/Exhibitions/2018/I-Was-Raised-On-The-Internet)
 <br>
+[In Search of the Post-Internet at Art Rotterdam](https://hyperallergic.com/182048/in-search-of-the-post-internet-at-art-rotterdam/)
 <br>
 
 
