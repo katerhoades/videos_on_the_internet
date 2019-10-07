@@ -1,4 +1,4 @@
-# 🎥VIDEO📼📺AND💾📹THE📼📷INTERNET💻
+# 🎥VIDEO📼📺ON💾📹THE📼📷INTERNET💻
 #### .・゜:✧･ﾟ: *✧･ﾟ:* SJSU Art 75 | Fall 2018 *:･ﾟ✧*:･ﾟ✧
 </br>
 
