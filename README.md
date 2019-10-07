@@ -104,4 +104,4 @@ A satirical how-to, diaristic video that reflects New Media art, the art world, 
 
 [![SofiaCordova](images/Cordova_Narsiux_2.jpg)](https://www.sofiacordova.com/YUNG-NARCISX)
 
-[<back to Lectures main page](https://github.com/art75/SJSU-art75/tree/master/lectures)
+
